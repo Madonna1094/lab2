@@ -113,3 +113,22 @@ Instructions:
 7. Drop tablespoon-sized balls of dough onto ungreased baking sheets.
 8. Bake for 8 to 10 minutes or until golden brown.
 9. Cool on wire racks.
+
+
+### Chocolate Mug Cake
+Ingredients:
+4 tbsp all-purpose flour
+4 tbsp sugar
+2 tbsp cocoa powder
+1/4 tsp baking powder
+3 tbsp milk
+2 tbsp vegetable oil
+1/4 tsp vanilla extract
+A pinch of salt
+Chocolate chips (optional)
+
+Instructions:
+Mix all ingredients in a microwave-safe mug.
+Stir until smooth.
+Microwave for 1–1.5 minutes.
+Let it cool for a minute, then enjoy!
